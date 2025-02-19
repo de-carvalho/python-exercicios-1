@@ -5,7 +5,7 @@
 - ![Captura de Tela 2025-02-18 às 17 53 41](https://github.com/user-attachments/assets/0dddb6ee-d34c-420b-b216-c6f8db359afb)
 
 - 2
-- ![Captura de Tela 2025-02-18 às 17 54 14](https://github.com/user-attachments/assets/3091261f-bb79-4a4e-bef2-fa1a2a92381a)
+- ![Captura de Tela 2025-02-19 às 15 39 13](https://github.com/user-attachments/assets/91921ee4-6926-4470-b242-e975e4b85a82)
 
 - 3
 - ![Captura de Tela 2025-02-18 às 17 54 42](https://github.com/user-attachments/assets/206d9c65-be2e-4952-bff3-4a4c1a713dd5)
